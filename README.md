@@ -5,6 +5,6 @@
 - 📫 How to reach me ...https://instagram.com/ameen_shuhad?utm_medium=copy_link
 
 <!---
-CYBERH43K4R/CYBERH43K4R is a ✨ special ✨ repository because its `README.md` (Screenshot_20211003-111204_Gallery.jpg) appears on your GitHub profile.
+CYBERH43K4R/CYBERH43K4R is a ✨ special ✨ repository because its `README.md` (ameenshuhadjpg) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
